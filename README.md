@@ -96,8 +96,3 @@ Ce projet est sous licence MIT.
 
 Visitez notre chaîne YouTube pour plus de contenu sur l'automatisation et le SEO : [youtube.com/@FEUSE0](https://www.youtube.com/@FEUSE0)
 Pour des formations avancées en automatisation et SEO, visitez : [feu-seo.com](https://feu-seo.com)
-#   S E U M 
- 
- #   S E U M 
- 
- 
